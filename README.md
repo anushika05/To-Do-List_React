@@ -1,1 +1,1 @@
-Click on the link to visit te website:https://rococo-snickerdoodle-a24108.netlify.app/
+Click on the link to visit the website:https://rococo-snickerdoodle-a24108.netlify.app/
